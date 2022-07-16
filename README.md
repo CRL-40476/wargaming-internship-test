@@ -1,0 +1,1 @@
+# wargaming-internship-test
